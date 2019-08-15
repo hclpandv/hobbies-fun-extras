@@ -4,7 +4,7 @@ Ghalib hai hawalat me, Premchand ke sath me
 Muh me kapda thusa hua hai, Hathkadiyan hai hath me  
   
   
-Shayar Lekhak jab bikne lage, Sab chood kaseede likhne lage  
+Shayar Lekhak jab bikne lage, Sab chod kaseede likhne lage  
 Ye dono yun behuda huye, baki logo se juda hue  
 Jo andhiyaro me marte the, Roushan unko ye karte the  
 Pichhdo ko in ne Ram kiya, khud ka apna Islam kiya  
