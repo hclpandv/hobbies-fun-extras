@@ -19,10 +19,10 @@ shayar fir bhi wo mara nahi, wo kathakar bhi dara nahi
 Nakhun kalam se dikhne lage, wo diwaro par likhne lage  
 Jeevan Bandhan jab tod gaye, sirf ek sandesha chhod gaye  
 
-> *Bolan se tulsi hue, Bolat rahe kabeer  
-  *Bolan pe badh pade, Jag ki badhe peer  
-  *kala srijan wo dharm hai, jinse upje ved  
-  *kala srijan ke ki maut pat jug jug kare hai khed  
+> Bolan se tulsi hue, Bolat rahe kabeer  
+  Bolan pe badh pade, Jag ki badhe peer  
+  kala srijan wo dharm hai, jinse upje ved  
+  kala srijan ke ki maut par jug jug kare hai khed  
   
 
 
