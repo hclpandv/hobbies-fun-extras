@@ -1,0 +1,1 @@
+> #Pash or Paash (9 September 1950 – 23 March 1988) was the pen name of Avtar Singh Sandhu, one of the major poets of the Naxalite movement in the Punjabi literature of the 1970s. He was killed by Khalistani extremists on 23 March 1988. His strongly left-wing views were reflected in his poetry.
