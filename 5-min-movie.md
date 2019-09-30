@@ -40,17 +40,35 @@ Tumhari Girl Friend Bhootiya Hai Salay..
 
 #### Screen-Play :
 
-*[Part-1]*
+*[Part-1]* - 1.30 Mins
 
-Song + Dance (Boyes in Duppatta)
+Song + Dance (Boys in Duppatta) : 20 Seconds
+
+{ Vicky Cutting Fabric with scissor | in the center } 
+
+Girl Meets Vicky : Necessory for Drama
+
+>Nahi Nahi Hum To Sab Banate Hai Complete Ladies Fashion … Ghagra, Lehenga, chudidar, Patiala, Anarkali, Modern Salwar, Pakistani Salwar, Long Kurti, Short Kurti, Gharara, Sharara, Mirror Work, Stone Work, 
+Designer Panty, Nightfall … Nighty Fall.
+
+{ Something happens | Unusual with Horror Music}
 
 Placard with : O stree kal aana
 
-*[Part-2]*
+*[Part-2]* - 1.30 Mins
 
-Stree Captures 
+"vikcy PLGGGGG"
+"Tumhari Girl Friend Bhootiya Hai Salay.."
 
-*[Part-3]*
+Stree Captures a guy.... 
+
+Guru Ji's Dialogue : 
+
+"Adhar Link hai sabka"
+
+
+
+*[Part-3]* - 1.30 Mins
 
 
 
