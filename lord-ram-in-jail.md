@@ -5,7 +5,7 @@ Jaj ne bola He prabhu, hamko khsama hai chahiye
 Aap namjad huye ho, Katghare me aaiye
 
 Allah nadarat the, ki jabki unko bhi summon gaye
-Aisa sunkar raak ji fir katghare me tan gaye
+Aisa sunkar Raam ji fir katghare me tan gaye
 Ram bole main hindu-muslim dono ke hi saath hun
 main hi allah, main hi nanak, main ayodhya naath hun
 
