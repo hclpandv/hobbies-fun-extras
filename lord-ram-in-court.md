@@ -4,13 +4,13 @@ Kal adalat me punah, shri-ram ghaseete gaye
 Jaj ne bola He prabhu, hamko khsama hai chahiye
 Aap namjad huye ho, Katghare me aaiye
 
-Allah nadarat the, ki jabki unko bhi summon gaye
-Aisa sunkar Raam ji fir katghare me tan gaye
+Allah nadarat hain, the jabki unko bhi summon gaye
+Aisa sunkar katghare me Raam ji fir tan gaye
 Ram bole main hindu-muslim dono ke hi saath hun
-main hi allah, main hi nanak, main ayodhya naath hun
+main hi allah, main hi nanak, main ayodhya naath hun.....
 
 Treta yug me jis liya, maine liya avtar tha
-Aaj dekhta hun to lagta, hai ki sab bekar tha
+Aaj dekhta hun to lagta, hai ki sab bekar tha...
 Kewat aur Shabri ke bahane, bhed bhav ko toda tha
 Tumko samjhane ko maine, Seeta tak to chhoda tha
 
@@ -20,14 +20,14 @@ Fir meri hi saugandh khake, kam aaisa kar gaye
 Mere liye dange hue, aur mere hi bachche mar gaye...
 
 Khair,
-Abh bhi samay hai, bhup apni pat do
-Janambhoomi par ghar banao begharo me baant do
+Abh bhi hai samay , tum bhul apni pat do...
+Janambhoomi par ghar banao begharo me baant do....
 
 Aisa karna main to kahta, param punya ka kaaj hai...
 Nyaya, Ahinsa, Parmarth, Prem, Yehi to Ram raj hai....
 
 Tab beech me bola kisi ne, jab wo tha ukta gaya
-Ram chandra bhes banakar, ye kaun Musalman aa gaya
+Ram chandra bhes banakar, ye kaun behrupiya aa gaya
 Aisa kahna tha ki bhaiya, aisa halla mach gaya
 Jo ain time par kat liya, Bas wo hi tha jo bach gaya
 
