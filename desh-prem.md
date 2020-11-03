@@ -2,10 +2,10 @@
 
 ```
 Machhliyan badi bheeshan desh bhakt hoti hain... 
-Wo desh traygne se pran tyagna behtar samajhti hain.
+Wo desh tyagne se pran tyagna behtar samajhti hain.
 
 Aur unka desh... Pani.. 
-Jhelta hai Prakriti ki mar..Unhe dene ko adhikar..Jivan ka adhar 
+Jhelta hai Prakriti ki mar..Unhe dene ko adhikar..Jivan ka adhar..
 
 Pani ko nahi matlab Machhliyo ke rang se, Jati se, ling se, Dharma se..
 Pani nahi mangta Machhliyo se koi praman patra..
