@@ -33,3 +33,13 @@
 | 1724 CE – 1948 CE       | Nizam of Hyderabad                     | Deccan region                                        |
 | 1600 CE – 1947 CE       | British East India Company/British Raj | British control after the decline of the Mughals     |
 | 1947 CE                 | Independence of India and Partition    | End of British rule and division into India/Pakistan |
+
+
+| Period             | Key Events/Developments                                         |
+|--------------------|----------------------------------------------------------------|
+| **c. 1500 BCE**    | Arrival of Indo-Aryans into the Indian subcontinent (northwest) |
+| **c. 1500 BCE – 1200 BCE** | Early Vedic Period: Rig Veda composed, semi-nomadic life, spread across the Punjab region. |
+| **c. 1200 BCE – 1000 BCE** | Later Vedic texts like the Sama, Yajur, and Atharva Vedas composed. Expansion into the Ganges plains. |
+| **c. 1000 BCE – 600 BCE**  | Later Vedic Period: Formation of small kingdoms, emergence of varna (social classes), beginning of the Iron Age. |
+| **c. 1000 BCE – 500 BCE**  | Rise of Mahajanapadas (16 large kingdoms) towards the end of the Vedic period. Increasing urbanization. |
+| **c. 600 BCE – 500 BCE**   | Transition to early historical period. Emergence of Buddhism and Jainism. |
