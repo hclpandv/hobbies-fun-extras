@@ -43,3 +43,23 @@
 | **c. 1000 BCE – 600 BCE**  | Later Vedic Period: Formation of small kingdoms, emergence of varna (social classes), beginning of the Iron Age. |
 | **c. 1000 BCE – 500 BCE**  | Rise of Mahajanapadas (16 large kingdoms) towards the end of the Vedic period. Increasing urbanization. |
 | **c. 600 BCE – 500 BCE**   | Transition to early historical period. Emergence of Buddhism and Jainism. |
+
+
+| Mahajanapada    | Capital           | Region/Location                          | Ruling System/Rulers                    |
+|-----------------|-------------------|------------------------------------------|------------------------------------------|
+| **1. Anga**     | Champa            | Bihar and Bengal                         | Monarchy; later absorbed by Magadha     |
+| **2. Magadha**  | Rajagriha (later Pataliputra) | Southern Bihar                           | Monarchs: **Bimbisara**, **Ajatashatru** |
+| **3. Kashi**    | Varanasi          | Varanasi (modern Uttar Pradesh)         | Monarchy; sometimes under Kosala        |
+| **4. Kosala**   | Shravasti         | Uttar Pradesh, near Nepal border        | Kings: **Prasenjit**                    |
+| **5. Vajji**    | Vaishali          | Northern Bihar                           | Oligarchic republic; ruled by **Licchavi** clan |
+| **6. Malla**    | Kusinara          | Northern India (near modern Gorakhpur) | Monarchy; significant for Buddhist texts |
+| **7. Chedi**    | Suktimati         | Bundelkhand region                       | Kings: Notable ruler **Vidudabha**     |
+| **8. Vatsa**    | Kausambi          | Near modern Allahabad                   | Monarchy; King **Udayana**              |
+| **9. Kuru**     | Indraprastha      | Modern Delhi                             | Monarchy; known for Kauravas and Pandavas |
+| **10. Panchala**| Ahichhatra (North), Kampilya (South) | Northern India                     | Monarchs; notable for **Drona**'s lineage |
+| **11. Surasena**| Mathura           | Modern Mathura, Uttar Pradesh           | Monarchy; important cultural center      |
+| **12. Gandhara**| Taxila            | Northwest India (modern Pakistan)       | Monarchy; notable for trade routes       |
+| **13. Avanti**  | Ujjain            | Central India                            | Monarchs; King **Pradyota**             |
+| **14. Magadha** | Pataliputra       | Southern Bihar                           | Monarchs; **Ajatashatru** and **Mahapadma Nanda** |
+| **15. Assaka**  | Potali            | Deccan region (modern Maharashtra)      | Monarchy; sometimes allied with Mauryas  |
+| **16. Matsya**  | Viratanagar       | Around modern Alwar, Rajasthan          | Monarchy; sometimes allied with Kauravas |
